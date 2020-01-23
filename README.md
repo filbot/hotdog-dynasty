@@ -1,5 +1,5 @@
 # Hotdog Dynasty
 
-In the hotdog ancient
-these ketchup forbidden
+In the hotdog ancient\
+these ketchup forbidden\
 A dynasty wise
