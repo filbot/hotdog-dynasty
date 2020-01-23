@@ -1,5 +1,5 @@
-# hotdog-dynasty
-Placeholder for future site
+# Hotdog Dynasty
 
-
-Site info here
+In the hotdog ancient
+these ketchup forbidden
+A dynasty wise
